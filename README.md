@@ -1,0 +1,2 @@
+# estereotipos
+Suelen comparar a un grupo con otro, resultando muchas veces despreciativo  y/u ofensivo para uno de ellos. Suelen basarse en conductas ya caducas que se transmiten de generación en generación y contribuyen a continuar las relaciones de poder de un grupo sobre el otro. Generaliza a todas las personas de cada grupo por igual, por lo tanto no se considera la diversidad. Al ser juicios de valores previos, nos hace tener expectativas sobre las personas antes d conocerlas.
